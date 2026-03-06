@@ -1,5 +1,5 @@
-Privacy Policy for [Your App Name / ramadan_app]
-Effective Date: [Today's Date]
+Privacy Policy for Deen Routine
+Effective Date: March 6. 2026
 
 1. Introduction
 Welcome to Deen Routine. We are committed to protecting your privacy. This Privacy Policy explains how we collect, use, and safeguard your information when you use our mobile application.
